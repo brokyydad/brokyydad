@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brokyydad
-- 👀 I’m interested in csgo
+- 👀 I must be on the road 
 - 🌱 I’m currently learning biomedical engineering
 - 💞️ I’m looking to collaborate on school lab work
 - 📫 How to reach me zhu010928@gmail.com
